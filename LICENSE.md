@@ -1,0 +1,1 @@
+All copyright reserved in this programme
